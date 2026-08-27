@@ -8,6 +8,9 @@ i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!!
 
 ![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=3133ggfkc3dmoqnk4wxef2c3pixe)
 
+<img width="101" height="57" alt="tumblr_picdaobePB1xy0eh3o4_250" src="https://github.com/user-attachments/assets/212b3226-2762-4e59-a2c2-b57527abb5f8" />
+
+
 <!--
 **Soapbox-Tao/Soapbox-Tao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
