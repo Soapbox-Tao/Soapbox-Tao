@@ -3,6 +3,8 @@
 ## Hey Im zen!
 ### No Prns>Any, 16 years old
 
+don't be afraid to approach me and talk. i might not understand social cues so pls tell me if im doing anything wrong
+
 <!--
 **Soapbox-Tao/Soapbox-Tao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
