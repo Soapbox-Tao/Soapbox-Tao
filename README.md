@@ -10,7 +10,9 @@ i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!!
 
 <img width="101" height="57" alt="tumblr_picdaobePB1xy0eh3o4_250" src="https://github.com/user-attachments/assets/212b3226-2762-4e59-a2c2-b57527abb5f8" />
 <img width="99" height="56" alt="tumblr_inline_pbk6zbvnsb1vjkfs0_540" src="https://github.com/user-attachments/assets/b3b4cb9c-3a97-42a5-b5c7-5f3e45020e3b" />
-<img width="150" height="20" alt="misswinter" src="https://github.com/user-attachments/assets/a1bb5a5e-f899-4bd3-94fb-19caf8913b02" />
+<img width="99" height="56" alt="tumblr_pbbd1hGBbb1xz2nuuo4_100" src="https://github.com/user-attachments/assets/3a327a76-b95e-429e-9456-a2fcb41e418c" />
+
+bye ok
 
 
 <!--
