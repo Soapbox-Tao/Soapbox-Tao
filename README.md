@@ -4,7 +4,7 @@
 ### No Prns>Any, CL16 lover
 
 don't be afraid to approach me and talk. i might not understand social cues so pls tell me if im doing anything wrong.
-i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!!
+i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!! FDs here >>>>
 
 ![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=3133ggfkc3dmoqnk4wxef2c3pixe)
 
