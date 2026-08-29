@@ -1,7 +1,7 @@
 <img width="876" height="337" alt="ezgif-47aa767f1ac57764" src="https://github.com/user-attachments/assets/a5dde06b-8308-4970-929d-30515ecc2314" />
 
 ## Hey Im zen!
-### No Prns>Any
+### No Prns>Any, CL16 lover
 
 don't be afraid to approach me and talk. i might not understand social cues so pls tell me if im doing anything wrong.
 i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!!
