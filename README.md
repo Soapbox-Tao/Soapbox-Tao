@@ -1,10 +1,10 @@
 <img width="876" height="337" alt="ezgif-47aa767f1ac57764" src="https://github.com/user-attachments/assets/a5dde06b-8308-4970-929d-30515ecc2314" />
 
 ## Hey Im zen!
-### No Prns>Any, CL16 lover
+### No Prns>Any, CL16 enjoyer
 
 don't be afraid to approach me and talk. i might not understand social cues so pls tell me if im doing anything wrong.
-i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!! i may behave stupidly so... well don't judge me by what you seen first OK. FDs here >>>> WIP
+i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!! FDs here >>>> WIP
 
 ![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=3133ggfkc3dmoqnk4wxef2c3pixe)
 
