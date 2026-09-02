@@ -1,12 +1,12 @@
 <img width="876" height="337" alt="ezgif-47aa767f1ac57764" src="https://github.com/user-attachments/assets/a5dde06b-8308-4970-929d-30515ecc2314" />
 
-## Hey Im zen!
-### No Prns>Any, CL16 enjoyer
+<h1 align="center">Hey Im zen!
+<h2 align="center">No Prns>Any, cl16 enjoyerrr
 
-don't be afraid to approach me and talk. i might not understand social cues so pls tell me if im doing anything wrong.
+<h3 align="center">don't be afraid to approach me and talk. i might not understand social cues so pls tell me if im doing anything wrong.
 i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!! FDs here >>>> WIP
 
-![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=3133ggfkc3dmoqnk4wxef2c3pixe)
+<p align="center">![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=3133ggfkc3dmoqnk4wxef2c3pixe)
 
 <img width="101" height="57" alt="tumblr_picdaobePB1xy0eh3o4_250" src="https://github.com/user-attachments/assets/212b3226-2762-4e59-a2c2-b57527abb5f8" />
 <img width="99" height="56" alt="tumblr_inline_pbk6zbvnsb1vjkfs0_540" src="https://github.com/user-attachments/assets/b3b4cb9c-3a97-42a5-b5c7-5f3e45020e3b" />
