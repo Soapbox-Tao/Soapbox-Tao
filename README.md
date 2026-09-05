@@ -18,6 +18,8 @@ just a bunch of my userboxes:
 <img width="257" height="51" alt="fa65ed04402c73d720f0c7445363ea61" src="https://github.com/user-attachments/assets/88ab4445-d1d5-4ae9-902e-98a7b2636ac4" />
 <img width="257" height="51" alt="1022528290444126378" src="https://github.com/user-attachments/assets/9a8ef734-258f-43c9-9d80-2dd24e5cfb18" />
 <img width="257" height="51" alt="db1193ae95c337e39bf447ea9242933e" src="https://github.com/user-attachments/assets/ad224daf-6cec-4d2f-b885-d368f56cfcab" />
+<img width="257" height="51" alt="92d8695867f1ac987a60db303977fdab" src="https://github.com/user-attachments/assets/45df928d-ca92-4b7a-89fe-3fbcdc4028a0" />
+<img width="257" height="51" alt="c79a6ea14654b752848278a940ca1e04" src="https://github.com/user-attachments/assets/3f0dae1b-703f-4db8-a105-196c2ca8d092" />
 
 
 
