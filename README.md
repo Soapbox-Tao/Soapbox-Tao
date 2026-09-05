@@ -12,6 +12,15 @@ i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!! FD
 <img width="99" height="56" alt="tumblr_inline_pbk6zbvnsb1vjkfs0_540" src="https://github.com/user-attachments/assets/b3b4cb9c-3a97-42a5-b5c7-5f3e45020e3b" />
 <img width="99" height="56" alt="tumblr_pbbd1hGBbb1xz2nuuo4_100" src="https://github.com/user-attachments/assets/3a327a76-b95e-429e-9456-a2fcb41e418c" />
 
+just a bunch of my userboxes:
+
+<img width="257" height="51" alt="ba66372de31861908c49aa8a6ebca7b1" src="https://github.com/user-attachments/assets/6dbdb9ff-fcfe-461a-8c5a-b93a7105a2ca" />
+<img width="257" height="51" alt="fa65ed04402c73d720f0c7445363ea61" src="https://github.com/user-attachments/assets/88ab4445-d1d5-4ae9-902e-98a7b2636ac4" />
+<img width="257" height="51" alt="1022528290444126378" src="https://github.com/user-attachments/assets/9a8ef734-258f-43c9-9d80-2dd24e5cfb18" />
+<img width="257" height="51" alt="db1193ae95c337e39bf447ea9242933e" src="https://github.com/user-attachments/assets/ad224daf-6cec-4d2f-b885-d368f56cfcab" />
+
+
+
 bye ok
 
 
