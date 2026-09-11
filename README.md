@@ -20,8 +20,6 @@ just a bunch of my userboxes:
 <img width="257" height="51" alt="92d8695867f1ac987a60db303977fdab" src="https://github.com/user-attachments/assets/45df928d-ca92-4b7a-89fe-3fbcdc4028a0" />
 <img width="257" height="51" alt="c79a6ea14654b752848278a940ca1e04" src="https://github.com/user-attachments/assets/3f0dae1b-703f-4db8-a105-196c2ca8d092" />
 
-<img width="257" height="257" alt="UttcXE86U3bl9ndJBXpmITbePxFfsI4uVG11dm1gSDKishU6Qspexzt2btJxKR9TSRBFZCJo38Myojtu8sYn083f" src="https://github.com/user-attachments/assets/85593356-3dcd-4a2d-b31a-16f232a4cb9a" />
-
 
 
 
