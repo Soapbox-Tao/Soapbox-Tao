@@ -1,10 +1,9 @@
 <img width="876" height="337" alt="ezgif-47aa767f1ac57764" src="https://github.com/user-attachments/assets/a5dde06b-8308-4970-929d-30515ecc2314" />
 
-<h1 align="center">Hey Im zen!
+<h1 align="center"> W.I.P
 <h2 align="center">No Prns>Any, cl16 enjoyerrr
 
-<h3 align="center">don't be afraid to approach me and talk. i might not understand social cues so pls tell me if im doing anything wrong.
-i love talking PLEASE approach. i might be AFK so whisper 2 interact yuh!!!!! FDs here >>>> WIP
+<h3 align="center">
 
 ![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=3133ggfkc3dmoqnk4wxef2c3pixe)
 
