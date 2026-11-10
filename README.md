@@ -2,7 +2,6 @@
 
 <h1 align="center"> W.I.P
 <h2 align="center">No Prns>Any, cl16 enjoyerrr
-https://owtao.straw.page/
 
 <h3 align="center">
 
