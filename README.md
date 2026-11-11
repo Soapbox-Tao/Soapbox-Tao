@@ -1,6 +1,6 @@
 <img width="876" height="337" alt="ezgif-47aa767f1ac57764" src="https://github.com/user-attachments/assets/a5dde06b-8308-4970-929d-30515ecc2314" />
 
-<h1 align="center"> W.I.P
+<h1 align="center"> for my fds check my strawpage https://owtao.straw.page
 <h2 align="center">No Prns>Any, cl16 enjoyerrr
 
 <h3 align="center">
